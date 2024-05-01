@@ -5,3 +5,5 @@
 ![Screenshot 2024-04-26 000008](https://github.com/sonvirgo/Support-Raid-SAS-Server/assets/10823037/54ddf4b3-19ad-464b-b6b5-62dd06fed547)
 ![Screenshot 2024-04-26 000055](https://github.com/sonvirgo/Support-Raid-SAS-Server/assets/10823037/7ead3d3a-42c7-4b6f-b7d4-ed2c7693e246)
 ![image](https://github.com/sonvirgo/Support-Raid-SAS-Server/assets/10823037/4109c781-bb8b-494d-9ec4-3c7ce331994b)
+![image](https://github.com/sonvirgo/Support-Raid-SAS-Server/assets/10823037/2201267a-2542-4f83-93cf-f2419570ccb1)
+![image](https://github.com/sonvirgo/Support-Raid-SAS-Server/assets/10823037/2ccf31a6-3a76-4b3a-b18d-9f018fa44053)
